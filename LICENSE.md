@@ -1,4 +1,4 @@
-
+Enhance Ulysses for macOS with Ulysses for macOS smart Utility - database templates and reminders, the #1 utility. Includes database templates and reminders for a smoother
 
 
 
